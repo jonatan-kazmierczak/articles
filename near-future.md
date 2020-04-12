@@ -35,7 +35,7 @@ The prophesy quoted above adds information to the older prophesy about *time of 
 > He replied, “Go your way, Daniel, because the words are rolled up and sealed until the time of the end.
 > Many will be purified, made spotless and refined, but the wicked will continue to be wicked. None of the wicked will understand, but those who are wise will understand.  
 
-*([verse 11](https://biblehub.com/daniel/12-11.htm) will all alternative meanings)*
+*([verse 11](https://biblehub.com/daniel/12-11.htm) including all alternative translations)*
 > And from the time the  
 > continuance / constant / ellipt / regular / sacrifice  
 > is  
