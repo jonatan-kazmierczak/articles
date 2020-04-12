@@ -62,8 +62,7 @@ Jesus Christ confirmed it, saying about wicked people:
 > Then they will go away to eternal punishment, but the righteous to eternal life.  
 
 The prophesy written in the book of Revelation continues in [chapter 21](https://biblehub.com/niv/revelation/21.htm):  
-*(verse 3-5)*
+*(verses 3-5)*
 > And I heard a loud voice from the throne saying, “Look! God’s dwelling place is now among the people, and he will dwell with them. They will be his people, and God himself will be with them and be their God.
 > ‘He will wipe every tear from their eyes. There will be no more death’ or mourning or crying or pain, for the old order of things has passed away.”  
 > He who was seated on the throne said, “I am making everything new!” Then he said, “Write this down, for these words are trustworthy and true.”  
-
