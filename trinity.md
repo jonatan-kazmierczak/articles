@@ -36,6 +36,5 @@ Have you noticed number 3 present anywhere in your body?
 John the Baptist said about Jesus Christ, as written in [Luke 3:16](https://biblehub.com/luke/3-16.htm):
 > John answered them all, "I baptize you with water. But one who is more powerful than I will come, the straps of whose sandals I am not worthy to untie. He will baptize you with the Holy Spirit and fire."
 
-Please look at the meanings of the word *spirit*: wind, breath, spirit.
-
+Please look at the meanings of the word *spirit*: wind, breath, spirit.  
 Do you believe, that wind and fire have personalities?
