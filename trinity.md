@@ -47,7 +47,7 @@ In the original Bible text, there are 2 words, which are sometimes translated as
 Translators and interpreters decide, how to translate the word and how to write it (starting from a small letter or from a capital letter).  
 Please look at some examples, which are translated differently in various Bible translations (sometimes as *wind*, sometimes as *spirit*):
 
-- [Hebrew 1:7](https://biblehub.com/hebrews/1-7.htm) - spirits or winds?
+- [Hebrews 1:7](https://biblehub.com/hebrews/1-7.htm) - spirits or winds?
 - [Psalm 104:4](https://biblehub.com/psalms/104-4.htm) - spirits or winds? (in addition: angels or messengers?)
 
 ## What is the Holy Spirit (or holy wind)?
