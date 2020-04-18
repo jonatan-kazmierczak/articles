@@ -34,20 +34,19 @@ Jesus Christ prayed to His Father, as recorded in
 
 Look at yourself now. How many eyes and ears do you have? How many hands and legs?  
 And how many genders do you know? Also 2: male and female.  
-Can you find number 3 in your body?
+Can you find number 3 in your body or in number of genders?
 
 ## What is spirit / wind?
 In the original Bible text, there are 2 words, which are sometimes translated as *spirit*, sometimes as *wind*, sometimes yet differently:
 
 - Hebrew word *[רוּחַ (ruah)](https://biblehub.com/hebrew/7307.htm)*
-  (please see [occurrences and different translations](https://biblehub.com/hebrew/strongs_7307.htm))
+  (you can check [occurrences and different translations](https://biblehub.com/hebrew/strongs_7307.htm))
 - Greek word *[πνεῦμα (pneuma)](https://biblehub.com/greek/4151.htm)*
-  (please see [occurrences and different translations](https://biblehub.com/greek/strongs_4151.htm))
+  (you can check [occurrences and different translations](https://biblehub.com/greek/strongs_4151.htm))
 
 Translators and interpreters decide, how to translate the word and how to write it (starting from a small letter or from a capital letter).  
 Please look at some examples, which are translated differently in various Bible translations (sometimes as *wind*, sometimes as *spirit*):
 
-- [John 3:8](https://biblehub.com/john/3-8.htm) - what is blowing: wind or spirit?
 - [Hebrew 1:7](https://biblehub.com/hebrews/1-7.htm) - spirits or winds?
 - [Psalm 104:4](https://biblehub.com/psalms/104-4.htm) - spirits or winds? (in addition: angels or messengers?)
 
