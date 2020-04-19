@@ -25,6 +25,7 @@ Jesus Christ prayed to His Father, as recorded in
 > Going a little farther, he fell with his face to the ground and prayed, “My Father, if it is possible, may this cup be taken from me. Yet not as I will, but as you will.”  
 > He went away a second time and prayed, “My Father, if it is not possible for this cup to be taken away unless I drink it, may your will be done.”
 
+Letter to [Hebrews chapter 1](https://biblehub.com/niv/hebrews/1.htm) provides very good and complete explanation of the topic.
 
 ## How do we, people, proof that there are 2 true Gods?
 
@@ -37,7 +38,7 @@ And how many genders do you know? Also 2: male and female.
 Can you find number 3 in your body or in number of genders?
 
 ## What is spirit / wind?
-In the original Bible text, there are 2 words, which are sometimes translated as *spirit*, sometimes as *wind*, sometimes yet differently:
+In the original Bible text, there are 2 words (always written from the small letter), which are sometimes translated as *spirit*, sometimes as *wind*, sometimes yet differently:
 
 - Hebrew word *[רוּחַ (ruah)](https://biblehub.com/hebrew/7307.htm)*
   (you can check [occurrences and different translations](https://biblehub.com/hebrew/strongs_7307.htm))
