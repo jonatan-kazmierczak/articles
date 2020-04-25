@@ -25,10 +25,10 @@ The prophesy of Jesus Christ, written in the gospel of [Matthew, chapter 24](htt
 > for there shall be then great tribulation, such as was not from the beginning of the world till now, no, nor may be.
 > And if those days were not shortened, no flesh would have been saved; but because of the chosen, shall those days be shortened.   
 
-The prophesy quoted above adds information to the older prophesy about *time of the end*, given by God through his angel, written in the book of [Daniel, chapter 12](https://biblehub.com/niv/daniel/12.htm):
+The prophesy quoted above extends the older prophesy about *time of the end*, given by God through his angel, written in the book of [Daniel, chapter 12](https://biblehub.com/niv/daniel/12.htm):
 
 *(verse 1)*
-> At that time Michael, the great prince who protects your people, will arise. There will be a time of distress such as has not happened from the beginning of nations until then. But at that time your people—everyone whose name is found written in the book—will be delivered.  
+> At that time Michael, the great prince who protects your people, will arise. There will be a time of distress such as has not happened from the beginning of nations until then. But at that time your people — everyone whose name is found written in the book — will be delivered.  
 
 *(verses 8-10)*
 > I heard, but I did not understand. So I asked, “My lord, what will the outcome of all this be?”  
