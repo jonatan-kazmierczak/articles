@@ -1,6 +1,6 @@
 # Articles
 
-* [What should you expect in the near future?](./near-future.md) (English)  
-  [Was solltest Du in neher Zukunft erwarten?](./near-future-de.md) (Deutsch)  
+* [What should you expect in the near future?](./near-future.md#what-should-you-expect-in-the-near-future) (English)  
+  [Was solltest Du in neher Zukunft erwarten?](./near-future-de.md#was-solltest-du-in-neher-zukunft-erwarten) (Deutsch)  
   
 * [Trinity - teaching of the Bible?](./trinity.md)
