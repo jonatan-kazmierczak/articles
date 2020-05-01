@@ -15,7 +15,7 @@ Die Prophezeiung gegebene von Gott, geschriebene im Buch der [Offenbarung, Kapit
 > Und wieder sah ich ein Pferd; diesmal war es fahlgelb. Der Reiter, der darauf sass, hiess »der Tod«, und sein Gefolge war das Totenreich. Ihnen wurde die Macht gegeben, ein Viertel der Menschheit durch Krieg, Hungersnot, Seuchen und wilde Tiere umkommen zu lassen.
 
 ### Zeit grosser Bedrängnis
-Die Prophezeiung Jesu Christi, geschriebene im Evangelium [Matthäus, Kapitel 24](https://www.die-bibel.de/bibeln/online-bibeln/zuercher-bibel/bibeltext/bibel/text/lesen/stelle/50/240001/249999/), sagt:
+Die Prophezeiung Jesu Christi, geschriebene im Evangelium [Matthäus Kapitel 24](https://www.die-bibel.de/bibeln/online-bibeln/zuercher-bibel/bibeltext/bibel/text/lesen/stelle/50/240001/249999/), sagt:
 
 *(Verse 7-8)*
 > Denn erheben wird sich Volk gegen Volk und Reich gegen Reich, und Hungersnöte und Erdbeben wird es geben da und dort.
@@ -41,7 +41,7 @@ Die oben zitierte Prophezeiung erweitert die ältere Prophezeiung über *die Zei
 Alle Prophezeiungen, auf die oben Bezug genommen wurde, haben eine glückliche Fortsetzung.
 
 Der Engel fügte hinzu:  
-*([Daniel 12:2-3](https://www.die-bibel.de/bibeln/online-bibeln/zuercher-bibel/bibeltext/bibel/text/lesen/stelle/27/120001/129999/)*
+*([Daniel 12:2-3](https://www.die-bibel.de/bibeln/online-bibeln/zuercher-bibel/bibeltext/bibel/text/lesen/stelle/27/120001/129999/))*
 > Und viele von denen, die im Erdenstaub schlafen, werden erwachen, die einen zu ewigem Leben und die anderen zu Schmach, zu ewigem Abscheu.
 > Die Verständigen aber werden glänzen wie der Glanz der Himmelsfeste, und wie die Sterne diejenigen, die viele zur Gerechtigkeit geführt haben, für immer und ewig.
 
