@@ -1,7 +1,7 @@
 # Trinity - teaching of the Bible?
 
 I have noticed, that some people believe, that the true God is a *trinity*.  
-As a basis of the believe they quote [Matthew 28:18-20](https://biblehub.com/niv/matthew/28.htm):  
+As a basis of the belief they quote [Matthew 28:18-20](https://biblehub.com/niv/matthew/28.htm):  
 > Then Jesus came to them and said, “All authority in heaven and on earth has been given to me. 
 > Therefore go and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, 
 > and teaching them to obey everything I have commanded you. And surely I am with you always, to the very end of the age.”
