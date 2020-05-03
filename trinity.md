@@ -66,7 +66,7 @@ Reaction of Elizabeth to the visit of Mary (Elizabeth had no idea, that Mary had
 > Blessed is she who has believed that the Lord would fulfill his promises to her!”
 
 *([Luke 1:67](https://biblehub.com/niv/luke/1.htm))*:
-> His father Zechariah was filled with the Holy Spirit and prophesied
+> His father Zechariah was filled with the Holy Spirit and prophesied.
 
 *([Acts 7:55-56](https://biblehub.com/niv/acts/7.htm))*
 > But Stephen, full of the Holy Spirit, looked up to heaven and saw the glory of God, and Jesus standing at the right hand of God. 
@@ -75,7 +75,7 @@ Reaction of Elizabeth to the visit of Mary (Elizabeth had no idea, that Mary had
 Jesus Christ said, as it is written in [Luke 11:13](https://biblehub.com/niv/luke/11.htm)
 > "If you then, though you are evil, know how to give good gifts to your children, how much more will your Father in heaven give the Holy Spirit to those who ask him!"
 
-## Occurrence of the number 3 in the Bible
+## Trinity mentioned in the Bible
 
 *([Revelation 16:13](https://biblehub.com/niv/revelation/16.htm))*
 > Then I saw 3 impure spirits that looked like frogs; they came out of the mouth of the dragon, out of the mouth of the beast and out of the mouth of the false prophet.
