@@ -13,6 +13,12 @@ Let's take a closer look at the Bible teachings.
 The gospel of [John 1:18](https://biblehub.com/niv/john/1.htm) says about Jesus Christ:
 > No one has ever seen God, but the one and only Son, who is himself God and is in closest relationship with the Father, has made him known.
 
+The saying:
+> "I am the Alpha and the Omega"
+
+- is said by God about himself, as written in [Revelation 1:8](https://biblehub.com/niv/revelation/1.htm)
+- is said by Jesus Christ about himself, as written in [Revelation 22:13](https://biblehub.com/niv/revelation/22.htm)
+
 Jesus Christ said to his disciples, as it is written in [John 14:28-31](https://biblehub.com/niv/john/14.htm):
 > "You heard me say, ‘I am going away and I am coming back to you.’ If you loved me, you would be glad that I am going to the Father, for the Father is greater than I.
 > (...)
