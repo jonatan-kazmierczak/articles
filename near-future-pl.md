@@ -1,4 +1,4 @@
-# Czego możesz oczekiwać w najbliższej przyszłości?
+# Czego możesz oczekiwać w niedalekiej przyszłości?
 
 ## Krótka odpowiedź
 - śmierć wielu ludzi w wyniku epidemii, głodu i przemocy
