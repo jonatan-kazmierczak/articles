@@ -8,17 +8,53 @@ As a basis of the belief they quote [Matthew 28:18-20](https://biblehub.com/niv/
 
 Let's take a closer look at the Bible teachings.
 
-## How many true Gods are mentioned in the Bible? Are they equal?
+## How many true Gods are mentioned in the Bible?
+
+2nd letter of Peter starts with [words](https://biblehub.com/niv/2_peter/1.htm):
+> Simon Peter, a servant and apostle of Jesus Christ, to those who through the righteousness of our God and Savior Jesus Christ have received a faith as precious as ours:  
+> Grace and peace be yours in abundance through the knowledge of God and of Jesus our Lord.
 
 The gospel of [John 1:18](https://biblehub.com/niv/john/1.htm) says about Jesus Christ:
 > No one has ever seen God, but the one and only Son, who is himself God and is in closest relationship with the Father, has made him known.
 
-The saying:
-> "I am the Alpha and the Omega"
+The Bible starts with [the statement](https://biblehub.com/genesis/1-1.htm):
+> In the beginning God created the heavens and the earth.
 
-- is said by God about himself, as written in [Revelation 1:8](https://biblehub.com/niv/revelation/1.htm)
-- is said by Jesus Christ about himself, as written in [Revelation 22:13](https://biblehub.com/niv/revelation/22.htm)
+Letter to [Hebrews 1:8-10](https://biblehub.com/gwt/hebrews/1.htm) says:
+> But God said about his Son, "Your throne, O God, is forever and ever. The scepter in your kingdom is a scepter for justice. (...)"  
+> God also said, "Lord, in the beginning you laid the foundation of the earth. With your own hands you made the heavens."
 
+YHWH (Yahweh/Jehovah) says, as written in [Isaiah 48:12-13](https://biblehub.com/niv/isaiah/48.htm):
+> "Listen to me, Jacob, Israel, whom I have called: I am he;  
+> I am the First and I am the Last.  
+> My own hand laid the foundations of the earth, and my right hand spread out the heavens;  when I summon them, they all stand up together."
+
+Then we read in [Revelation 1:8](https://biblehub.com/niv/revelation/1.htm):
+> "I am the Alpha and the Omega," says the Lord God, "who is, and who was, and who is to come, the Almighty."
+
+Then Jesus Christ says, as written in [Revelation 1:17-18](https://biblehub.com/niv/revelation/1.htm):
+> "I am the First and the Last.  
+> I am the Living One; I was dead, and now look, I am alive for ever and ever!"
+
+Then we read in [Revelation 21:6-7](https://biblehub.com/niv/revelation/21.htm):
+> "It is done. I am the Alpha and the Omega, the Beginning and the End.  
+> To the thirsty I will give water without cost from the spring of the water of life.
+> Those who are victorious will inherit all this, and I will be their God and they will be my children."
+
+Then Jesus Christ says, as written in [Revelation 22:13](https://biblehub.com/niv/revelation/22.htm):
+> "I am the Alpha and the Omega, the First and the Last, the Beginning and the End."
+
+## How do we, people, proof that there are 2 true Gods?
+
+*([Genesis 1:26-27](https://biblehub.com/nlt/genesis/1.htm))*
+> Then God said, “Let us make human beings in our image, to be like us. (...)”  
+> So God created human beings in his own image. In the image of God he created them; male and female he created them.
+
+Look at yourself now. How many eyes and ears do you have? How many hands and legs?  
+And how many genders do you know? Also 2: male and female.  
+Can you find number 3 in your body or in the number of genders?
+
+## Is the Son equal to the Father?
 Jesus Christ said to his disciples, as it is written in [John 14:28-31](https://biblehub.com/niv/john/14.htm):
 > "You heard me say, ‘I am going away and I am coming back to you.’ If you loved me, you would be glad that I am going to the Father, for the Father is greater than I.
 > (...)
@@ -32,16 +68,6 @@ Jesus Christ prayed to His Father, as recorded in
 > He went away a second time and prayed, “My Father, if it is not possible for this cup to be taken away unless I drink it, may your will be done.”
 
 Letter to [Hebrews chapter 1](https://biblehub.com/niv/hebrews/1.htm) provides very good and complete explanation of the topic.
-
-## How do we, people, proof that there are 2 true Gods?
-
-*([Genesis 1:26-27](https://biblehub.com/nlt/genesis/1.htm))*
-> Then God said, “Let us make human beings in our image, to be like us. (...)”  
-> So God created human beings in his own image. In the image of God he created them; male and female he created them.
-
-Look at yourself now. How many eyes and ears do you have? How many hands and legs?  
-And how many genders do you know? Also 2: male and female.  
-Can you find number 3 in your body or in number of genders?
 
 ## What is spirit / wind?
 In the original Bible text, there are 2 words (always written from the small letter), which are sometimes translated as *spirit*, sometimes as *wind*, sometimes yet differently:
