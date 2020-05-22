@@ -8,22 +8,31 @@
 ## Wyjaśnienie
 
 ### Przejazd Śmierci
-Proroctwo dane przez Boga, zapisane w księdze [Objawienia, rozdział 6](http://biblia-online.pl/Biblia/UwspolczesnionaBibliaGdanska/Ksiega-Objawienia/6/7), mówi:
+Proroctwo dane przez Boga, zapisane w księdze [Objawienia, rozdział 6](http://biblia-online.pl/Biblia/UwspolczesnionaBibliaGdanska/Ksiega-Objawienia/6), mówi:
 
-*(wersety 7-8)*
-> A gdy otworzył czwartą pieczęć, usłyszałem głos czwartego stworzenia mówiący: Chodź i zobacz.
-> I zobaczyłem, oto koń płowy, a temu, który na nim siedział, było na imię Śmierć, a Piekło szło za nim. I dano im władzę nad czwartą częścią ziemi, aby zabijali mieczem i głodem, i zarazą, i przez zwierzęta ziemi.
+*(wersety
+[7](http://biblia.oblubienica.eu/interlinearny/index/book/27/chapter/6/verse/7/param/1/version/TR) -
+[8](http://biblia.oblubienica.eu/interlinearny/index/book/27/chapter/6/verse/8/param/1/version/TR)
+)*
+> A gdy otworzył czwartą pieczęć, usłyszałem głos czwartego stworzenia. Mówiło ono: Przyjdź!
+> I zobaczyłem, a oto koń blado zielony, a ten, który na nim siedział, miał na imię Śmierć, a hades szedł za nim; i dano im władzę nad czwartą częścią ziemi, by zabijali mieczem i głodem, i zarazą, i przez dzikie zwierzęta ziemi.
 
 ### Czas wielkiego ucisku
 Proroctwo Jezusa Chrystusa, zapisane w [Ewangelii Mateusza, rozdział 24](http://biblia-online.pl/Biblia/UwspolczesnionaBibliaGdanska/Ewangelia-Mateusza/24/7), mówi:
 
-*(wersety 7-8)*
-> Powstanie bowiem naród przeciwko narodowi i królestwo przeciwko królestwu i będzie głód, zaraza i trzęsienia ziemi miejscami.
-> Lecz to wszystko jest początkiem boleści.
+*(wersety 
+[7](http://biblia.oblubienica.eu/interlinearny/index/book/1/chapter/24/verse/7/param/1/version/TR) -
+[8](http://biblia.oblubienica.eu/interlinearny/index/book/1/chapter/24/verse/8/param/1/version/TR)
+)*
+> Powstanie bowiem naród przeciwko narodowi i królestwo przeciwko królestwom, będzie głód i zarazy, a miejscami trzęsienia ziemi. 
+> Wszystko to zaś to dopiero początek bólów porodowych.
 
-*(wersety 21-22)*
-> Wtedy bowiem będzie wielki ucisk, jakiego nie było od początku świata aż dotąd ani nigdy nie będzie.
-> A gdyby te dni nie były skrócone, żadne ciało nie byłoby zbawione. Ale ze względu na wybranych dni te będą skrócone.
+*(wersety
+[21](http://biblia.oblubienica.eu/interlinearny/index/book/1/chapter/24/verse/21/param/1/version/TR) -
+[22](http://biblia.oblubienica.eu/interlinearny/index/book/1/chapter/24/verse/22/param/1/version/TR)
+)*
+> Nastanie bowiem wtedy wielki ucisk, jakiego nie było od początku świata aż do teraz, i na pewno nie będzie.
+> I gdyby te dni nie były skrócone, nie ocalałoby żadne ciało, jednak ze względu na wybranych dni te będą skrócone.
 
 Proroctwo zacytowane powyżej rozszerza starsze proroctwo o *czasie końca*, dane przez Boga poprzez swojego anioła, a zapisane w księdze [Daniela, rozdział 12](http://biblia-online.pl/Biblia/UwspolczesnionaBibliaGdanska/Ksiega-Daniela/12/1):
 
@@ -57,11 +66,15 @@ Anioł dodał:
 > Ci, którzy są mądrzy, będą świecić jak blask firmamentu, a ci, którzy przyprowadzili wielu do sprawiedliwości – jak gwiazdy na wieki wieków.
 
 Jezus Chrystus to potwierdził, mówiąc o niegodziwych ludziach:  
-*([Ewangelia Mateusza 25:46](http://biblia-online.pl/Biblia/UwspolczesnionaBibliaGdanska/Ewangelia-Mateusza/25/46))*
-> I pójdą ci na męki wieczne, sprawiedliwi zaś do życia wiecznego.
+*([Ewangelia Mateusza 25:46](http://biblia.oblubienica.eu/interlinearny/index/book/1/chapter/25/verse/46/param/1/version/TR))*
+> I odejdą ci na wieczną karę, sprawiedliwi zaś do życia wiecznego.
 
 Proroctwo zapisane w księdze Objawienia ma następującą kontynuacją w [rozdziale 21](http://biblia-online.pl/Biblia/UwspolczesnionaBibliaGdanska/Ksiega-Objawienia/21/3):  
-*(wersety 3-5)*
-> I usłyszałem donośny głos z nieba: Oto przybytek Boga jest z ludźmi i będzie mieszkał z nimi. Oni będą jego ludem, a sam Bóg będzie z nimi i będzie ich Bogiem.
-> I otrze Bóg wszelką łzę z ich oczu, i śmierci już nie będzie ani smutku, ani krzyku, ani bólu nie będzie, bo pierwsze rzeczy przeminęły.  
-> A zasiadający na tronie powiedział: Oto wszystko czynię nowe. I powiedział do mnie: Napisz, bo te słowa są wiarygodne i prawdziwe.
+*(wersety 
+[3](http://biblia.oblubienica.eu/interlinearny/index/book/27/chapter/21/verse/3/param/1) ,
+[4](http://biblia.oblubienica.eu/interlinearny/index/book/27/chapter/21/verse/4/param/1) ,
+[5](http://biblia.oblubienica.eu/interlinearny/index/book/27/chapter/21/verse/5/param/1)
+)*
+> I usłyszałem donośny głos od tronu, mówiący: Oto Namiot Boga z ludźmi! Będzie mieszkał z nimi, a oni będą Jego ludem i sam Bóg będzie z nimi ich Bogiem.
+> I otrze wszelką łzę z ich oczu; i śmierci już nie będzie ani bólu, ani krzyku, ani znoju już nie będzie; gdyż pierwsze rzeczy przeminęły.  
+> I powiedział Ten, który siedzi na tronie: Oto wszystko czynię nowym. I mówi: Napisz: słowa te są wierne i prawdziwe.
