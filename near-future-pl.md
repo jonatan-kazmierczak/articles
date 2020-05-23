@@ -7,7 +7,7 @@
 
 ## Wyjaśnienie
 
-### Przejazd Śmierci
+### Przemarsz Śmierci
 Proroctwo dane przez Boga, zapisane w księdze [Objawienia, rozdział 6](http://biblia-online.pl/Biblia/UwspolczesnionaBibliaGdanska/Ksiega-Objawienia/6), mówi:
 
 *(wersety
