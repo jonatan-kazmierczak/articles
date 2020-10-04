@@ -45,8 +45,9 @@ Then we read in [Revelation 21:6-7](https://biblehub.com/niv/revelation/21.htm):
 > To the thirsty I will give water without cost from the spring of the water of life.
 > Those who are victorious will inherit all this, and I will be their God and they will be my children."
 
-Then Jesus Christ says, as written in [Revelation 22:13](https://biblehub.com/niv/revelation/22.htm):
-> "I am the Alpha and the Omega, the First and the Last, the Beginning and the End."
+Then Jesus Christ says, as written in [Revelation 22:12-13](https://biblehub.com/niv/revelation/22.htm):
+> "Look, I am coming soon! My reward is with me, and I will give to each person according to what they have done.  
+> I am the Alpha and the Omega, the First and the Last, the Beginning and the End."
 
 ## How do we, people, proof that there are 2 true Gods?
 
