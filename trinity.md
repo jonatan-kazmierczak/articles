@@ -14,7 +14,11 @@ Let's take a closer look at the Bible teachings.
 > Simon Peter, a servant and apostle of Jesus Christ, to those who through the righteousness of our God and Savior Jesus Christ have received a faith as precious as ours:  
 > Grace and peace be yours in abundance through the knowledge of God and of Jesus our Lord.
 
-The gospel of [John 1:18](https://biblehub.com/niv/john/1.htm) says about Jesus Christ:
+The gospel of John says in [chapter 1](https://biblehub.com/niv/john/1.htm) says about Jesus Christ:  
+*(verse 1)*
+> In the beginning was the Word, and the Word was with God, and the Word was God.
+
+*(verse 18)*
 > No one has ever seen God, but the one and only Son, who is himself God and is in closest relationship with the Father, has made him known.
 
 The Bible starts with [the statement](https://biblehub.com/genesis/1-1.htm):
@@ -52,7 +56,6 @@ Then Jesus Christ says, as written in [Revelation 22:13](https://biblehub.com/ni
 
 Look at yourself now. How many eyes and ears do you have? How many hands and legs?  
 And how many genders do you know? Also 2: male and female.  
-Can you find number 3 in your body or in the number of genders?
 
 ## Is the Son equal to the Father?
 Jesus Christ said to his disciples, as it is written in [John 14:28-31](https://biblehub.com/niv/john/14.htm):
