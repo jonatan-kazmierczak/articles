@@ -69,4 +69,5 @@ The prophesy written in the book of Revelation continues in [chapter 21](https:/
 > He who was seated on the throne said, “I am making everything new!” Then he said, “Write this down, for these words are trustworthy and true.”  
 
 > He said to me: “It is done. I am the Alpha and the Omega, the Beginning and the End. To the thirsty I will give water without cost from the spring of the water of life.  
-> Those who are victorious will inherit all this, and I will be their God and they will be my children.   > But the cowardly, the unbelieving, the vile, the murderers, the sexually immoral, those who practice magic arts, the idolaters and all liars—they will be consigned to the fiery lake of burning sulfur. This is the second death.”
+> Those who are victorious will inherit all this, and I will be their God and they will be my children.  
+> But the cowardly, the unbelieving, the vile, the murderers, the sexually immoral, those who practice magic arts, the idolaters and all liars—they will be consigned to the fiery lake of burning sulfur. This is the second death.”
