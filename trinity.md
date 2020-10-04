@@ -14,7 +14,7 @@ Let's take a closer look at the Bible teachings.
 > Simon Peter, a servant and apostle of Jesus Christ, to those who through the righteousness of our God and Savior Jesus Christ have received a faith as precious as ours:  
 > Grace and peace be yours in abundance through the knowledge of God and of Jesus our Lord.
 
-The gospel of John says in [chapter 1](https://biblehub.com/niv/john/1.htm) says about Jesus Christ:  
+The gospel of John says in [chapter 1](https://biblehub.com/niv/john/1.htm) about Jesus Christ:  
 *(verse 1)*
 > In the beginning was the Word, and the Word was with God, and the Word was God.
 
