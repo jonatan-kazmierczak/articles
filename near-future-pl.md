@@ -73,8 +73,16 @@ Proroctwo zapisane w księdze Objawienia ma następującą kontynuacją w [rozdz
 *(wersety 
 [3](http://biblia.oblubienica.eu/interlinearny/index/book/27/chapter/21/verse/3/param/1) ,
 [4](http://biblia.oblubienica.eu/interlinearny/index/book/27/chapter/21/verse/4/param/1) ,
-[5](http://biblia.oblubienica.eu/interlinearny/index/book/27/chapter/21/verse/5/param/1)
+[5](http://biblia.oblubienica.eu/interlinearny/index/book/27/chapter/21/verse/5/param/1) ,
+[6](http://biblia.oblubienica.eu/interlinearny/index/book/27/chapter/21/verse/6/param/1) ,
+[7](http://biblia.oblubienica.eu/interlinearny/index/book/27/chapter/21/verse/7/param/1) ,
+[8](http://biblia.oblubienica.eu/interlinearny/index/book/27/chapter/21/verse/8/param/1)
 )*
 > I usłyszałem donośny głos od tronu, mówiący: Oto Namiot Boga z ludźmi! Będzie mieszkał z nimi, a oni będą Jego ludem i sam Bóg będzie z nimi ich Bogiem.
 > I otrze wszelką łzę z ich oczu; i śmierci już nie będzie ani bólu, ani krzyku, ani znoju już nie będzie; gdyż pierwsze rzeczy przeminęły.  
+
 > I powiedział Ten, który siedzi na tronie: Oto wszystko czynię nowym. I mówi: Napisz: słowa te są wierne i prawdziwe.
+
+> I powiedział do mnie: Stało się. Ja jestem alfa i omega, początek i koniec. Ja dam pragnącemu darmo ze źródła wody życia.  
+> Zwycięzca to odziedziczy i będę mu Bogiem, a on będzie mi synem.  
+> Co do tchórzy zaś i niewiernych, skalanych i zabójców, nierządnych i czarowników, bałwochwalców i wszystkich kłamców — ich działem będzie jezioro płonące ogniem i siarką; to jest śmierć druga.
