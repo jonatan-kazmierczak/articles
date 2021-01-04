@@ -69,7 +69,7 @@ Jezus Chrystus to potwierdził, mówiąc o niegodziwych ludziach:
 *([Ewangelia Mateusza 25:46](http://biblia.oblubienica.eu/interlinearny/index/book/1/chapter/25/verse/46/param/1/version/TR))*
 > I odejdą ci na wieczną karę, sprawiedliwi zaś do życia wiecznego.
 
-Proroctwo zapisane w księdze Objawienia ma następującą kontynuacją:  
+Proroctwo zapisane w księdze Objawienia ma następującą kontynuację:  
 *([rozdział 21](http://biblia-online.pl/Biblia/UwspolczesnionaBibliaGdanska/Ksiega-Objawienia/21/3) 
 wersety 
 [3](http://biblia.oblubienica.eu/interlinearny/index/book/27/chapter/21/verse/3/param/1) ,
