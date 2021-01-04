@@ -3,7 +3,7 @@
 ## Kurze Antwort
 - Tod vieler Leuten durch Seuchen, Hungersnot, Gewalt
 - Zeit grosser Bedrängnis
-- Ewige Leben ohne Leid für Gerechte, ewige Strafe für Böse
+- Ewige Leben ohne Leid und Krankheiten für Gerechte, ewige Strafe für Böse
 
 ## Erklärung
 
@@ -49,9 +49,8 @@ Jesus Christus bestätigte es, indem er über böse Menschen sprach:
 *([Matthew 25:46](https://www.die-bibel.de/bibeln/online-bibeln/lesen/ZB/MAT.25.46))*
 > Und diese werden in die ewige Strafe gehen, die Gerechten aber ins ewige Leben.
 
-Die Prophezeiung geschriebene im Buch der Offenbarung fortsetzt in [Kapitel 21](https://www.die-bibel.de/bibeln/online-bibeln/lesen/ZB/REV.21/):
-
-*(Verse 3-8)*
+Die Prophezeiung geschriebene im Buch der Offenbarung fortsetzt:  
+*([Kapitel 21](https://www.die-bibel.de/bibeln/online-bibeln/lesen/ZB/REV.21/), Verse 3-8)*
 > Und ich hörte eine laute Stimme vom Thron her rufen: "Siehe, die Wohnung Gottes bei den Menschen! Er wird bei ihnen wohnen, und sie werden seine Völker sein, und Gott selbst wird mit ihnen sein, ihr Gott.
 > Und abwischen wird er jede Träne von ihren Augen, und der Tod wird nicht mehr sein, und kein Leid, kein Geschrei und keine Mühsal wird mehr sein; denn was zuerst war, ist vergangen."  
 
@@ -60,3 +59,7 @@ Die Prophezeiung geschriebene im Buch der Offenbarung fortsetzt in [Kapitel 21](
 > Und er sagte zu mir: Es ist geschehen. Ich bin das A und das O, der Anfang und das Ende. Ich werde dem Dürstenden von der Quelle des Lebenswassers zu trinken geben, umsonst.  
 > Wer den Sieg erringt, wird dies alles erben, und ich werde ihm Gott sein, und er wird mir Sohn sein.  
 > Den Feigen und Ungläubigen, den mit Greueltaten Befleckten und Mördern, den Unzüchtigen, Zauberern und Götzendienern und allen, die der Lüge dienen, wird ihr Teil beschieden sein im brennenden Feuer- und Schwefelsee; das ist der zweite Tod.
+
+*([Kapitel 22](https://www.die-bibel.de/bibeln/online-bibeln/lesen/ZB/REV.22/), Vers 2)*
+> In der Mitte zwischen der Strasse und dem Fluss, nach beiden Seiten hin, sind Bäume des Lebens, die zwölfmal Frucht tragen. Jeden Monat spenden sie ihre Früchte,  
+> und die Blätter der Bäume dienen zur Heilung der Völker.

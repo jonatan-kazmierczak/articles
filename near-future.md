@@ -3,7 +3,7 @@
 ## Short answer
 - Death of many people caused by epidemics, famine, violence
 - Time of great tribulation and distress
-- Eternal life without pain for righteous people, eternal punishment for wicked ones
+- Eternal life without pain and sicknesses for righteous people, eternal punishment for wicked ones
 
 ## Explanation
 
@@ -61,8 +61,8 @@ Jesus Christ confirmed it, saying about wicked people:
 *([Matthew 25:46](https://biblehub.com/niv/matthew/25.htm))*
 > Then they will go away to eternal punishment, but the righteous to eternal life.  
 
-The prophesy written in the book of Revelation continues in [chapter 21](https://biblehub.com/niv/revelation/21.htm):  
-*(verses 3-8)*
+The prophesy written in the book of Revelation continues:  
+*([chapter 21](https://biblehub.com/niv/revelation/21.htm), verses 3-8)*
 > And I heard a loud voice from the throne saying, “Look! God’s dwelling place is now among the people, and he will dwell with them. They will be his people, and God himself will be with them and be their God.  
 > ‘He will wipe every tear from their eyes. There will be no more death’ or mourning or crying or pain, for the old order of things has passed away.”  
 
@@ -71,3 +71,6 @@ The prophesy written in the book of Revelation continues in [chapter 21](https:/
 > He said to me: “It is done. I am the Alpha and the Omega, the Beginning and the End. To the thirsty I will give water without cost from the spring of the water of life.  
 > Those who are victorious will inherit all this, and I will be their God and they will be my children.  
 > But the cowardly, the unbelieving, the vile, the murderers, the sexually immoral, those who practice magic arts, the idolaters and all liars—they will be consigned to the fiery lake of burning sulfur. This is the second death.”
+
+*([chapter 22](https://biblehub.com/niv/revelation/22.htm), verse 2)*
+> On each side of the river stood the tree of life, bearing twelve crops of fruit, yielding its fruit every month.   > And the leaves of the tree are for the healing of the nations.

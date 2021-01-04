@@ -3,7 +3,7 @@
 ## Krótka odpowiedź
 - śmierć wielu ludzi w wyniku epidemii, głodu i przemocy
 - czas wielkiego ucisku
-- wieczne życie bez bólu dla prawych ludzi, wieczna kara dla niegodziwców
+- wieczne życie bez bólu i chorób dla prawych ludzi, wieczna kara dla niegodziwców
 
 ## Wyjaśnienie
 
@@ -69,8 +69,9 @@ Jezus Chrystus to potwierdził, mówiąc o niegodziwych ludziach:
 *([Ewangelia Mateusza 25:46](http://biblia.oblubienica.eu/interlinearny/index/book/1/chapter/25/verse/46/param/1/version/TR))*
 > I odejdą ci na wieczną karę, sprawiedliwi zaś do życia wiecznego.
 
-Proroctwo zapisane w księdze Objawienia ma następującą kontynuacją w [rozdziale 21](http://biblia-online.pl/Biblia/UwspolczesnionaBibliaGdanska/Ksiega-Objawienia/21/3):  
-*(wersety 
+Proroctwo zapisane w księdze Objawienia ma następującą kontynuacją:  
+*([rozdział 21](http://biblia-online.pl/Biblia/UwspolczesnionaBibliaGdanska/Ksiega-Objawienia/21/3) 
+wersety 
 [3](http://biblia.oblubienica.eu/interlinearny/index/book/27/chapter/21/verse/3/param/1) ,
 [4](http://biblia.oblubienica.eu/interlinearny/index/book/27/chapter/21/verse/4/param/1) ,
 [5](http://biblia.oblubienica.eu/interlinearny/index/book/27/chapter/21/verse/5/param/1) ,
@@ -86,3 +87,10 @@ Proroctwo zapisane w księdze Objawienia ma następującą kontynuacją w [rozdz
 > I powiedział do mnie: Stało się. Ja jestem alfa i omega, początek i koniec. Ja dam pragnącemu darmo ze źródła wody życia.  
 > Zwycięzca to odziedziczy i będę mu Bogiem, a on będzie mi synem.  
 > Co do tchórzy zaś i niewiernych, skalanych i zabójców, nierządnych i czarowników, bałwochwalców i wszystkich kłamców — ich działem będzie jezioro płonące ogniem i siarką; to jest śmierć druga.
+
+*([rozdział 22](http://biblia-online.pl/Biblia/UwspolczesnionaBibliaGdanska/Ksiega-Objawienia/22/) 
+werset 
+[2](http://biblia.oblubienica.eu/interlinearny/index/book/27/chapter/22/verse/2/param/1)
+)*
+> Środkiem jego ulicy i po obu brzegach rzeki — drzewo życia, dające dwanaście owoców, każdego miesiąca wydające swój owoc,  
+> a liście drzewa — dla uzdrawiania narodów.
