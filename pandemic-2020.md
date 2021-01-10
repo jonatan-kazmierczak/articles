@@ -1,10 +1,10 @@
-# Why the Coronavirus disease pandemic will last over 3.5 years ?
+# Why the Coronavirus disease pandemic should last over 3.5 years ?
 
-Unusual worldwide realities which started in year 2020, called *[Coronavirus disease (COVID-19) pandemic](https://www.who.int/emergencies/diseases/novel-coronavirus-2019)*, will last over 3.5 years. These *realities* mean:
-* taking away known regularity of life (unlimited meetings and travelling, attendance to cultural and sport events, having face uncovered)
+Unusual worldwide realities which started in year 2020, called *[Coronavirus disease (COVID-19) pandemic](https://www.who.int/emergencies/diseases/novel-coronavirus-2019)*, should last over 3.5 years. These *realities* mean:
+* taking away known regularity of life
 * devastation of the world economy
 
-How do we know, that they are supposed to last over 3.5 years? Because it was prophesized long ago by God and it is written in the Bible, in the Book of Daniel. Let's take a look at the prophecy.
+Why should they last over 3.5 years? Because this is the most likely meaning of the prophecy given long ago by God and written in the Bible, in the Book of Daniel.
 
 ## The prophecy
 The Book of Daniel, [chapter 12](https://biblehub.com/niv/daniel/12.htm), verses [11](https://biblehub.com/daniel/12-11.htm)-[12](https://biblehub.com/daniel/12-12.htm), say:
@@ -64,7 +64,7 @@ Some additional info about the context of the referred prophecy:
 - the whole prophecy is written in the Book of Daniel, chapters [11](https://biblehub.com/niv/daniel/11.htm) (our times described since verse 40) and [12](https://biblehub.com/niv/daniel/12.htm) (our times and the future)
 - additional info about this and other relevant prophecies can be found in the article [What should you expect in the near future?](./near-future.md#what-should-you-expect-in-the-near-future)
 
-## What next?
+## What should you do?
 - apply to your life [Psalm 40](https://biblehub.com/niv/psalms/40.htm)
 - stay safe, encouraged by [Psalm 91](https://biblehub.com/niv/psalms/91.htm)
 
