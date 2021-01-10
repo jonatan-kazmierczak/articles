@@ -22,7 +22,7 @@ The Book of Daniel, [chapter 12](https://biblehub.com/niv/daniel/12.htm), verses
 
 ## Explanation
 
-### continuance/constant/ellipt/regularity  is  taken away / turned aside  
+### *continuance/constant/regularity  is  taken away / turned aside*
 Since year 2020 the regularity/continuance/constant of life of most people in the world is taken away.
 Examples:
 - people don't shake hands nor embrace each other
@@ -33,7 +33,7 @@ Examples:
 - schools and other places are closed
 - people are imprisoned in own houses (so-called *lockdown*)
 
-### desolating/devastating/stupefying/stunning  abomination/disgusting/filthy/idolatrous/idol  is set up
+### *desolating/devastating/stupefying/stunning  abomination/disgusting/filthy/idolatrous/idol  is set up*
 Since year 2020:
 - cities and towns are turned into empty places with closed businesses and without people on the streets
 - hotels and touristic places are empty and desolated
@@ -48,20 +48,20 @@ In addition, since year 2020:
 - people believe in being saved from the pandemic (and other sicknesses) by medical and pharmaceutical systems, rather than by God and Jesus Christ - this is also idolatry
 
 Worth to mention, that [World Health Organization](https://www.who.int/) and many other medical institutions and pharmaceutical businesses, worshipped by people since year 2020, use an ancient idol as their symbol - a snake on a pole
-(for more info, please see in the Bible: [2 Kings 18:4](https://biblehub.com/niv/2_kings/18.htm), [Numbers 21:8-9](https://biblehub.com/niv/numbers/21.htm), [Revelation 12:9](https://biblehub.com/revelation/12-9.htm))
+(for more info, please see in the Bible: [2 Kings 18:4](https://biblehub.com/2_kings/18-4.htm), [Numbers 21:8-9](https://biblehub.com/niv/numbers/21.htm), [Revelation 12:9](https://biblehub.com/revelation/12-9.htm))
 ([examples](https://www.google.com/search?q=medicine+logo&tbm=isch&hl=en&chips=q:medicine+logo,g_1:snake:y6NHL49dknw%3D&client=firefox-b-d&sa=X&ved=2ahUKEwi03Oihr5LuAhUQyKQKHaAmD5UQ4lYoAHoECAEQGA&biw=1428&bih=700))
 
-### there will be 1,290 days
+### *there will be 1,290 days*
 The unusual worldwide realities, mentioned above, will last 1,290 days - it means 3 years and 7 months (counting 30 days as 1 month).
 
 However, it is important to successfully reach the end of 1,335 days - it means 1.5 month more.
 
 ## Context
 Some additional info about the context of the referred prophecy:
-- it was given to a Jew called Daniel, living at that time in Persian empire, *in the third year of the reign of King Cyrus of Persia* - means over 2,500 years ago (see [Daniel 10:1](https://biblehub.com/niv/daniel/10.htm))
+- it was given to a Jew called Daniel, living at that time in Persian empire, *in the third year of the reign of King Cyrus of Persia* - it means over 2,500 years ago (see [Daniel 10:1](https://biblehub.com/niv/daniel/10.htm))
 - it was finally delivered by an angel, who was stopped on the way for 21 days by *the prince of the Persian kingdom* - an invisible ruler of Persian empire; this is the only recorded case about a wicked force blocking delivery of a prophecy - it means, that the prophecy include extremely important information
 (see [Daniel 10](https://biblehub.com/niv/daniel/10.htm))
-- the whole prophecy is written in the Book of Daniel, chapters [11](https://biblehub.com/niv/daniel/11.htm) (our time described since verse 40) and [12](https://biblehub.com/niv/daniel/12.htm) (our time and future)
+- the whole prophecy is written in the Book of Daniel, chapters [11](https://biblehub.com/niv/daniel/11.htm) (our times described since verse 40) and [12](https://biblehub.com/niv/daniel/12.htm) (our times and the future)
 - additional info about this and other relevant prophecies can be found in the article [What should you expect in the near future?](./near-future.md#what-should-you-expect-in-the-near-future)
 
 ## What next?
