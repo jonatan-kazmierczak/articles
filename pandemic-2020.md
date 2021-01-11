@@ -4,7 +4,8 @@ Unusual worldwide realities which started in year 2020, called *[Coronavirus dis
 * taking away known regularity of life
 * devastation of the world economy
 
-Why will they last over 3.5 years? Because this is (most likely) prophesized long ago by God and written in the Bible, in the Book of Daniel.
+Why will they last over 3.5 years?
+Because this is (the most likely) meaning of the prophecy written in the Bible, in the Book of Daniel.
 
 ## The prophecy
 The Book of Daniel, [chapter 12](https://biblehub.com/niv/daniel/12.htm), verses [11](https://biblehub.com/daniel/12-11.htm)-[12](https://biblehub.com/daniel/12-12.htm), say:
