@@ -1,10 +1,10 @@
-# Why the Coronavirus disease pandemic should last over 3.5 years ?
+# Why the Coronavirus disease pandemic will last over 3.5 years ?
 
-Unusual worldwide realities which started in year 2020, called *[Coronavirus disease (COVID-19) pandemic](https://www.who.int/emergencies/diseases/novel-coronavirus-2019)*, should last over 3.5 years. These *realities* mean:
+Unusual worldwide realities which started in year 2020, called *[Coronavirus disease (COVID-19) pandemic](https://www.who.int/emergencies/diseases/novel-coronavirus-2019)*, will last over 3.5 years. These *realities* mean:
 * taking away known regularity of life
 * devastation of the world economy
 
-Why should they last over 3.5 years? Because this is the most likely meaning of the prophecy given long ago by God and written in the Bible, in the Book of Daniel.
+Why will they last over 3.5 years? Because this is (most likely) prophesized long ago by God and written in the Bible, in the Book of Daniel.
 
 ## The prophecy
 The Book of Daniel, [chapter 12](https://biblehub.com/niv/daniel/12.htm), verses [11](https://biblehub.com/daniel/12-11.htm)-[12](https://biblehub.com/daniel/12-12.htm), say:
