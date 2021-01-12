@@ -4,7 +4,7 @@ Unusual worldwide situation which started in year 2020, called *[Coronavirus dis
 * taking away known regularity of life
 * devastation of the world economy
 
-This situation is most likely the fulfillment of very important prophecy written in the Bible, in the Book of Daniel.
+This situation seems to be a fulfillment of a very important prophecy given over 2,500 years ago to Daniel - respected Jew living in Persian empire.
 
 ## The prophecy
 The Book of Daniel, [chapter 12](https://biblehub.com/niv/daniel/12.htm), verses [11](https://biblehub.com/daniel/12-11.htm) (including all alternative translations) and [12](https://biblehub.com/daniel/12-12.htm), say:
@@ -27,7 +27,7 @@ Since year 2020 the regularity/continuance/constant of life of most people in th
 Examples:
 - people don't shake hands nor embrace each other
 - people don't meet personally - even with own parents/children and close family members and even on such important occasions as funeral
-- no travelling to other locations
+- no (or very limited) travelling to other locations
 - no cultural events, i.e. cinema film projections, artistic performances and shows
 - no big sport events, i.e. olympics, international championships
 - schools and other places are closed
@@ -52,9 +52,9 @@ Worth to mention, that [World Health Organization](https://www.who.int/) and man
 ([examples](https://www.google.com/search?q=medicine+logo&tbm=isch&hl=en&chips=q:medicine+logo,g_1:snake:y6NHL49dknw%3D&client=firefox-b-d&sa=X&ved=2ahUKEwi03Oihr5LuAhUQyKQKHaAmD5UQ4lYoAHoECAEQGA&biw=1428&bih=700))
 
 ### *there will be 1,290 days*
-The unusual worldwide realities, mentioned above, will last 1,290 days - it means 3 years and 7 months (counting 30 days as 1 month).
+The unusual worldwide situation, described above, should last 1,290 days - it means 3 years and 7 months (counting 30 days as 1 month).
 
-However, it is important to successfully reach the end of 1,335 days - it means 1.5 month more.
+However, it is important for you to successfully reach the end of 1,335 days - it means 1.5 month more.
 
 ## Context
 Some additional info about the context of the referred prophecy:
