@@ -1,7 +1,7 @@
 # Will the Coronavirus disease pandemic last over 3.5 years ?
 
 Unusual worldwide situation which started in year 2020, called *[Coronavirus disease (COVID-19) pandemic](https://www.who.int/emergencies/diseases/novel-coronavirus-2019)*, will very likely last over 3.5 years. It includes:
-* taking away known regularity of life
+* taking away the known regularity of life
 * devastation of the world economy
 
 This situation seems to be a fulfillment of a very important prophecy given over 2,500 years ago to Daniel - respected Jew living in Persian empire.
@@ -22,32 +22,32 @@ The Book of Daniel, [chapter 12](https://biblehub.com/niv/daniel/12.htm), verses
 
 ## Explanation
 
-### *continuance/constant/regularity  is  taken away / turned aside*
+### *the continuance/constant/regularity  is  taken away / turned aside*
 Since year 2020 the regularity/continuance/constant of life of most people in the world is taken away.
 Examples:
 - people don't shake hands nor embrace each other
-- people don't meet personally - even with own parents/children and close family members and even on such important occasions as funeral
+- people don't meet personally - even with their own parents/children and close family members and even on such important occasions as funeral
 - no (or very limited) travelling to other locations
 - no cultural events, i.e. cinema film projections, artistic performances and shows
 - no big sport events, i.e. olympics, international championships
 - schools and other places are closed
-- people are imprisoned in own houses (so-called *lockdown*)
+- people are imprisoned in their own houses (so-called *lockdown*)
 
-### *desolating/devastating/stupefying/stunning  abomination/disgusting/filthy/idolatrous/idol  is set up*
+### *the desolating/devastating/stupefying/stunning  abomination/disgusting/filthy/idolatrous/idol  is set up*
 Since year 2020:
 - cities and towns are turned into empty places with closed businesses and without people on the streets
-- hotels and touristic places are empty and desolated
+- hotels and touristic places are empty and desolate
 - local and global economy is continuously being devastated
-  - businesses are closed during most of the year, cannot bring profit, must release the stuff and finally collapse
+  - businesses are closed during most part of the year, they cannot bring profit, they must release the stuff and finally collapse
   - people cannot or are not allowed to work
 - people avoid personal contact with close family members and friends
 - healthy people believe, that personal contact or shaking hands with other healthy person is dangerous
 
 In addition, since year 2020:
-- *Corona* and *Covid-19*, mentioned much more frequently than *God* and *Jesus Christ*, are part of the idolatry
-- people believe in being saved from the pandemic (and other sicknesses) by medical and pharmaceutical systems, rather than by God and Jesus Christ - this is also idolatry
+- terms *Corona* and *Covid-19* are mentioned much more frequently than *God* and *Jesus Christ* - this is part of the idolatry
+- people believe in being saved from the pandemic (and other sicknesses) by medical and pharmaceutical systems, rather than by God and Jesus Christ - this is also the idolatry
 
-Worth to mention, that [World Health Organization](https://www.who.int/) and many other medical institutions and pharmaceutical businesses, worshipped by people since year 2020, use an ancient idol as their symbol - a snake on a pole
+Worth to mention, that [World Health Organization](https://www.who.int/) and many other medical institutions and pharmaceutical businesses, which are worshipped by people since year 2020, use an ancient idol as their symbol - a snake on a pole
 (for more info, please see in the Bible: [2 Kings 18:4](https://biblehub.com/2_kings/18-4.htm), [Numbers 21:8-9](https://biblehub.com/niv/numbers/21.htm), [Revelation 12:9](https://biblehub.com/revelation/12-9.htm))
 ([examples](https://www.google.com/search?q=medicine+logo&tbm=isch&hl=en&chips=q:medicine+logo,g_1:snake:y6NHL49dknw%3D&client=firefox-b-d&sa=X&ved=2ahUKEwi03Oihr5LuAhUQyKQKHaAmD5UQ4lYoAHoECAEQGA&biw=1428&bih=700))
 
