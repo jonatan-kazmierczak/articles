@@ -5,5 +5,5 @@
 (PL) [Czego możesz oczekiwać w niedalekiej przyszłości?](./near-future-pl.md#czego-możesz-oczekiwać-w-niedalekiej-przyszłości)  
 
 ### English
-[Should you be scared of Coronavirus and other diseases?](./scary-diseases.md)  
-[Will the Coronavirus pandemic last over 3.5 years?](./pandemic-2020.md)  
+* [Should you be scared of Coronavirus and other diseases?](./scary-diseases.md#should-you-be-scared-of-coronavirus-and-other-diseases)  
+* [Will the Coronavirus pandemic last over 3.5 years?](./pandemic-2020.md#will-the-coronavirus-disease-pandemic-last-over-35-years)  
