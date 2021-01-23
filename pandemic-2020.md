@@ -1,4 +1,4 @@
-# Will the Coronavirus disease pandemic last over 3.5 years ?
+# Will the Coronavirus disease pandemic last over 3.5 years?
 
 Unusual worldwide situation which started in year 2020, officially called *[Coronavirus disease (COVID-19) pandemic](https://www.who.int/emergencies/diseases/novel-coronavirus-2019)*, will very likely last over 3.5 years.  
 Why so long?
