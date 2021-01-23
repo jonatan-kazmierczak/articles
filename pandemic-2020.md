@@ -27,12 +27,12 @@ Since year 2020 the regularity and continuity of life of most people in the worl
 Examples:
 - people don't meet personally
   - even with their own parents/children and close family members
-  - even on such important occasions as worshipping of God or funeral
+  - even on very important occasions such as worshipping of God or funeral
+- schools and other places are closed (including places of worship of God)
 - very limited possibilities of travelling to other locations (countries, states, regions)
 - no cultural events, i.e. cinema film projections, artistic performances and shows
 - no big sport events, i.e. Olympics, international championships
-- schools and other places (including places of worship of God) are closed
-- people are imprisoned in their own houses (so-called *lockdown*)
+- people are imprisoned in their own homes (so-called *lockdown*)
 
 ### *an appalling abomination is set up*
 other possible meanings:
@@ -44,9 +44,9 @@ other possible meanings:
 In year 2020 an appalling, ruining and desolating abomination (or detestable thing or detestable idol) was set up.
 It is officially called *Coronavirus disease (COVID-19) pandemic*.  
 Examples:
-- healthy people are scared of personal contact or shaking hands with other healthy person
+- healthy people are scared of personal contact or shaking hands with other healthy people
 - local and global economy is being ruined
-  - businesses are closed during most part of the year, they cannot bring profit, they must release the stuff and finally collapse
+  - businesses are closed most part of the year, hence cannot bring profit, must release the stuff and finally collapse
   - people cannot work or are not allowed to work
 - hotels and touristic places are empty and desolate
 
@@ -69,15 +69,15 @@ However, it is important for you to successfully reach the end of 1,335 days - i
 
 ## Context
 Some additional info about the context of the referred prophecy:
-- it was given to a respected Jew called Daniel, living at that time in Persian empire, *in the third year of the reign of King Cyrus of Persia* - it means over 2,500 years ago (see [Daniel 10:1](https://biblehub.com/niv/daniel/10.htm))
-- it was finally delivered by an angel, who was stopped on the way for 21 days by *the prince of the Persian kingdom* - an invisible ruler of Persian empire; this is the only recorded case about a wicked force blocking delivery of a prophecy - it means, that the prophecy contains extremely important information
+- it was given to a respected Jew called Daniel, living in the Persian empire at that time, *in the third year of the reign of King Cyrus of Persia* - it means over 2,500 years ago (see [Daniel 10:1](https://biblehub.com/niv/daniel/10.htm))
+- it was finally delivered by an angel, who was stopped on the way for 21 days by *the prince of the Persian kingdom* - an invisible ruler of the Persian empire; this is the only recorded case of a wicked force blocking delivery of a prophecy - it means, that the prophecy contains extremely important information
 (see [Daniel 10](https://biblehub.com/niv/daniel/10.htm))
-- the whole prophecy is written in the Book of Daniel, chapters [11](https://biblehub.com/niv/daniel/11.htm) (our times described since verse 40) and [12](https://biblehub.com/niv/daniel/12.htm) (referring to our times and the future)
+- the whole prophecy is written in the Book of Daniel, chapters [11](https://biblehub.com/niv/daniel/11.htm) (our present times described since verse 40) and [12](https://biblehub.com/niv/daniel/12.htm) (referring to our present times and the future)
 - additional info about this and other relevant prophecies can be found in the article [What should you expect in the near future?](./near-future.md#what-should-you-expect-in-the-near-future)
 
 ## What should you do?
 - apply to your life [Psalm 40](https://biblehub.com/niv/psalms/40.htm)
-- stay safe, encouraged by [Psalm 91](https://biblehub.com/niv/psalms/91.htm)
+- stay safe and encouraged by [Psalm 91](https://biblehub.com/niv/psalms/91.htm)
 
 ## Additional resource
 [Timeline of WHO's response to COVID-19](https://www.who.int/emergencies/diseases/novel-coronavirus-2019/interactive-timeline) showing the beginning and development of the pandemic
