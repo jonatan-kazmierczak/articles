@@ -1,21 +1,21 @@
-# Was solltest Du in neher Zukunft erwarten?
+# Was solltest Du in naher Zukunft erwarten?
 
 ## Kurze Antwort
-- Tod vieler Leuten durch Seuchen, Hungersnot, Gewalt
+- Tod vieler Leute durch Seuchen, Hungersnot, Gewalt
 - Zeit grosser Bedrängnis
-- Ewige Leben ohne Leid und Krankheiten für Gerechte, ewige Strafe für Böse
+- Ewiges Leben ohne Leid und Krankheiten für Gerechte, ewige Strafe für Böse
 
 ## Erklärung
 
 ### Fahrt des Todes
-Die Prophezeiung gegebene von Gott, geschriebene im Buch der [Offenbarung, Kapitel 6](https://www.die-bibel.de/bibeln/online-bibeln/lesen/NGUE/REV.6.7-REV.6.8), sagt:
+Die Prophezeiung gegeben von Gott, geschrieben im Buch der [Offenbarung, Kapitel 6](https://www.die-bibel.de/bibeln/online-bibeln/lesen/NGUE/REV.6.7-REV.6.8), sagt:
 
 *(Verse 7-8)*
 > Als das Lamm das vierte Siegel öffnete, hörte ich das vierte der lebendigen Wesen rufen: »Komm!«
 > Und wieder sah ich ein Pferd; diesmal war es fahlgelb. Der Reiter, der darauf sass, hiess »der Tod«, und sein Gefolge war das Totenreich. Ihnen wurde die Macht gegeben, ein Viertel der Menschheit durch Krieg, Hungersnot, Seuchen und wilde Tiere umkommen zu lassen.
 
 ### Zeit grosser Bedrängnis
-Die Prophezeiung Jesu Christi, geschriebene im Evangelium [Matthäus Kapitel 24](https://www.die-bibel.de/bibeln/online-bibeln/lesen/ZB/MAT.24/), sagt:
+Die Prophezeiung Jesu Christi, geschrieben im Evangelium [Matthäus Kapitel 24](https://www.die-bibel.de/bibeln/online-bibeln/lesen/ZB/MAT.24/), sagt:
 
 *(Verse 7-8)*
 > Denn erheben wird sich Volk gegen Volk und Reich gegen Reich, und Hungersnöte und Erdbeben wird es geben da und dort.  
@@ -49,7 +49,7 @@ Jesus Christus bestätigte es, indem er über böse Menschen sprach:
 *([Matthew 25:46](https://www.die-bibel.de/bibeln/online-bibeln/lesen/ZB/MAT.25.46))*
 > Und diese werden in die ewige Strafe gehen, die Gerechten aber ins ewige Leben.
 
-Die Prophezeiung geschriebene im Buch der Offenbarung fortsetzt:  
+Die Prophezeiung geschrieben im Buch der Offenbarung fortsetzt:  
 *([Kapitel 21](https://www.die-bibel.de/bibeln/online-bibeln/lesen/ZB/REV.21/), Verse 3-8)*
 > Und ich hörte eine laute Stimme vom Thron her rufen: "Siehe, die Wohnung Gottes bei den Menschen! Er wird bei ihnen wohnen, und sie werden seine Völker sein, und Gott selbst wird mit ihnen sein, ihr Gott.
 > Und abwischen wird er jede Träne von ihren Augen, und der Tod wird nicht mehr sein, und kein Leid, kein Geschrei und keine Mühsal wird mehr sein; denn was zuerst war, ist vergangen."  
