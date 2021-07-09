@@ -29,7 +29,7 @@ Examples:
   - even with their own parents/children and close family members
   - even on very important occasions such as worshipping of God or funeral
 - schools and other places are closed (including places of worship of God)
-- very limited possibilities of travelling to other locations (countries, states, regions)
+- limited possibilities of travelling to other locations (countries, states, regions)
 - no cultural events, i.e. cinema film projections, artistic performances and shows
 - no big sport events, i.e. Olympics, international championships
 - people are imprisoned in their own homes (so-called *lockdown*)
@@ -55,7 +55,7 @@ Why is it an abomination / detestable thing / detestable idol:
   - mentioned in every news
   - to which people sacrifice a lot of their time, by reading, hearing and speaking about it
   - which superseded all other topics, including topic of God and Jesus Christ
-- people believe in being freed from *Coronavirus* (and other sicknesses) by medical and pharmaceutical systems, rather than by God and Jesus Christ
+- people believe in being freed from *Coronavirus* (and other sicknesses) by medical and pharmaceutical systems and solutions (for example by vaccinations), rather than by God and Jesus Christ
 - faces and face expressions of people cannot be seen because faces are continuously covered by masks
 
 Worth to mention, that [World Health Organization](https://www.who.int/) and many other medical institutions and pharmaceutical businesses, strongly connected with the topic of *Coronavirus*, use an ancient idol as their symbol - a snake on a pole
