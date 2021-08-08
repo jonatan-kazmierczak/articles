@@ -19,8 +19,7 @@ How can you avoid this horrible punishment? What does it mean to **receive the m
 > This calls for wisdom. Let the person who has insight calculate the number of the beast, for it is the number of a man. That number is 666.
 
 ### Important points
-* *the beast* forces all people, regardless of their status, to receive *the mark*
-* all people are forced by the beast *to receive the mark* - *the name of the beast or the number of its name*
+* *the beast* forces all people, regardless of their status, *to receive the mark* - *the name of the beast or the number of its name*
 * people without *the mark of the beast* face difficulties with buying and selling
 
 ### Explanation
@@ -41,8 +40,7 @@ Some of the physical aspects of *the mark of the beast* are:
 *Note*: the term *centrally controlled*, used above, means controlled within a country, group of countries (i.e. European Union) or worldwide / globally.
 
 ## Summary
-Even if you have *the mark of the beast*, you can still get rid of it.  
-You should do it as quickly as only possible.  
+Even if you have *the mark of the beast*, you can still get rid of it. You should do it as quickly as possible.  
 It's worth of every effort; [Revelation 20:4-6](https://biblehub.com/nkjv/revelation/20.htm) says:
 
 > And I saw thrones, and they sat on them, and judgment was committed to them. Then I saw the souls of those who had been beheaded for their witness to Jesus and for the word of God, who had **not worshiped the beast or his image, and had not received his mark on their foreheads or on their hands**. And they lived and reigned with Christ for a thousand years.  
