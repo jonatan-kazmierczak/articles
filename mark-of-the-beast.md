@@ -31,13 +31,13 @@ the contrary is mentioned in [Revelation 7:3](https://biblehub.com/niv/revelatio
 
 Recent physical aspect of *the mark of the beast* are  
 centrally controlled and monitored COVID-19 vaccination certificates.  
-In many countries only people who have received such certificate (in form of a QR code) and show it (usually holding it in the right hand) are allowed to work, to enter shops or to travel.
+In many countries only people who have received such certificate (in a form of a QR code) and show it (usually holding it in the right hand) are allowed to work, to enter shops or to travel.
 
 *Note*: the term *centrally controlled*, used above, means controlled within a country, group of countries (i.e. European Union) or worldwide / globally.
 
 ## Summary
 Even if you have received *the mark of the beast*, you can still get rid of it by deleting it.
-You should do it as quickly as possible!  
+You should do it as quickly as possible in order to avoid the horrible punishment mentioned on the beginning.  
 It's worth of every effort; [Revelation 20:4-6](https://biblehub.com/nkjv/revelation/20.htm) says:
 
 > And I saw thrones, and they sat on them, and judgment was committed to them. Then I saw the souls of those who had been beheaded for their witness to Jesus and for the word of God, who had **not worshiped the beast or his image, and had not received his mark on their foreheads or on their hands**. And they lived and reigned with Christ for a thousand years.  
