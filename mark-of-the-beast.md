@@ -41,6 +41,3 @@ You should do it as quickly as possible in order to avoid the horrible punishmen
 It's worth of every effort; [Revelation 20:4-6](https://biblehub.com/nkjv/revelation/20.htm) says:
 
 > And I saw thrones, and they sat on them, and judgment was committed to them. Then I saw the souls of those who had been beheaded for their witness to Jesus and for the word of God, who had **not worshiped the beast or his image, and had not received his mark on their foreheads or on their hands**. And they lived and reigned with Christ for a thousand years.  
-> But the rest of the dead did not live again until the thousand years were finished.  
-> This is the first resurrection.   
-> Blessed and holy is he who has part in the first resurrection. Over such the second death has no power, but they shall be priests of God and of Christ, and shall reign with Him a thousand years.
