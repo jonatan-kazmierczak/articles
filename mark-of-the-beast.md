@@ -29,11 +29,8 @@ the contrary is mentioned in [Revelation 7:3](https://biblehub.com/niv/revelatio
 
 > “Do not harm the land or the sea or the trees until we put *a seal on the foreheads of the servants of our God*.” 
 
-Recent physical aspect of *the mark of the beast* are  
-centrally controlled and monitored COVID-19 certificates.  
+Recent physical aspect of *the mark of the beast* are **COVID-19 certificates**.  
 In many countries only people who have received such certificate (in a form of a QR code/mark) and show it (usually holding it in the right hand) are allowed to work, to enter shops or to travel.
-
-*Note*: the term *centrally controlled*, used above, means controlled within a country, group of countries (i.e. European Union) or worldwide / globally.
 
 ## Summary
 Even if you have received *the mark of the beast*, you can still get rid of it by deleting it.
