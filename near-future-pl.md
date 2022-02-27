@@ -96,4 +96,4 @@ werset
 > a liście drzewa — dla uzdrawiania narodów.
 
 ## Zakończenie
-Aby poznać dobrą nowinę o Królestwie Bożym, warto przeczytać [Ewangelię Łukasza](http://biblia-online.pl/Biblia/NowaBibliaGdanska/Ewangelia-Lukasza).
+Aby lepiej poznać dobrą nowinę o Królestwie Bożym, warto przeczytać [Ewangelię Łukasza](http://biblia-online.pl/Biblia/NowaBibliaGdanska/Ewangelia-Lukasza).
