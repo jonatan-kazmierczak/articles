@@ -1,7 +1,7 @@
 # Was solltest Du in naher Zukunft erwarten?
 
 ## Kurze Antwort
-- Tod vieler Leute durch Seuchen, Hungersnot, Gewalt
+- Tod vieler Leute durch Kriege, Hungersnot, Seuchen und Gewalt
 - Zeit grosser Bedrängnis
 - Ewiges Leben ohne Leid und Krankheiten für Gerechte, ewige Strafe für Böse
 

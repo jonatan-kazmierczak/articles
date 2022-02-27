@@ -1,7 +1,7 @@
 # Czego możesz oczekiwać w niedalekiej przyszłości?
 
 ## Krótka odpowiedź
-- śmierć wielu ludzi w wyniku epidemii, głodu i przemocy
+- śmierć wielu ludzi w wyniku wojen, głodu, epidemii i przemocy
 - czas wielkiego ucisku
 - wieczne życie bez bólu i chorób dla prawych ludzi, wieczna kara dla niegodziwców
 
@@ -24,7 +24,7 @@ Proroctwo Jezusa Chrystusa, zapisane w [Ewangelii Mateusza, rozdział 24](http:/
 [7](http://biblia.oblubienica.eu/interlinearny/index/book/1/chapter/24/verse/7/param/1/version/TR) -
 [8](http://biblia.oblubienica.eu/interlinearny/index/book/1/chapter/24/verse/8/param/1/version/TR)
 )*
-> Powstanie bowiem naród przeciwko narodowi i królestwo przeciwko królestwom, będzie głód i zarazy, a miejscami trzęsienia ziemi. 
+> Powstanie bowiem naród przeciwko narodowi i królestwo przeciwko królestwom, będzie głód i zarazy, a miejscami trzęsienia ziemi.  
 > Wszystko to zaś to dopiero początek bólów porodowych.
 
 *(wersety
@@ -94,3 +94,6 @@ werset
 )*
 > Środkiem jego ulicy i po obu brzegach rzeki — drzewo życia, dające dwanaście owoców, każdego miesiąca wydające swój owoc,  
 > a liście drzewa — dla uzdrawiania narodów.
+
+## Zakończenie
+Aby poznać dobrą nowinę o Królestwie Bożym, warto przeczytać [Ewangelię Łukasza](http://biblia-online.pl/Biblia/NowaBibliaGdanska/Ewangelia-Lukasza).

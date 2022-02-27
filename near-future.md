@@ -67,3 +67,6 @@ The prophesy written in the book of Revelation continues:
 *([chapter 22](https://biblehub.com/niv/revelation/22.htm), verse 2)*
 > On each side of the river stood the tree of life, bearing twelve crops of fruit, yielding its fruit every month.  
 > And the leaves of the tree are for the healing of the nations.
+
+## Conclusion
+To learn more about the good news of the Kingdom of God, a good place to read is the [Gospel of Luke](https://biblehub.com/niv/luke/1.htm).
