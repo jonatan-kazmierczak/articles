@@ -40,22 +40,14 @@ According to examples from the Bible, it also includes service (free or paid) or
 * *The beast* received its power and authority from *the dragon*.
 * *The beast* has authority and power over *every tribe, people, language and nation*.
 * *The whole world* - *all inhabitants of the earth* - are impressed by *the beast*, follow it and worship it.
-* *The beast* has some features of 4 beasts described in [Daniel 7](https://biblehub.com/niv/revelation/12.htm), but unlike them it has *7 heads*. 
+* *The beast* will *exercise its authority for 42 months* (= 3.5 years = 1260 days)  
+  (see Revelation [11:2-3](https://biblehub.com/niv/revelation/11.htm) [12:6,14](https://biblehub.com/niv/revelation/12.htm)).  
+  This period of time started in year 2020 when the [Coronavirus pandemic](https://www.who.int/emergencies/diseases/novel-coronavirus-2019) was announced.
+* *The beast* has some features of 4 beasts (kingdoms) described in [Daniel 7](https://biblehub.com/niv/revelation/12.htm), but unlike them it has *7 heads*. 
 * *10 horns* represent 10 kings (or rulers) (see [Revelation 17:12-14](https://biblehub.com/niv/revelation/17.htm) and [Daniel 7:24](https://biblehub.com/niv/daniel/7.htm)).
 * Number 7 represents completeness (see Revelation [1:20](https://biblehub.com/lsv/revelation/1.htm) , [4:5](https://biblehub.com/niv/revelation/4.htm) and [Genesis 2:2-3](https://biblehub.com/niv/genesis/2.htm)).
-* *7 heads* represent all strongly connected systems forming *the beast*, allowing it to rule over all people (primarily by ruling over their "heads" - minds). They include:
-  * system of information, including media  
-    You are surrounded by information prepared by the beast and delivered by trustworthy experts, endorsed by the beast.
-  * technology (addressed later)
-  * economy
-  * science
-  * medicine and pharma
-  * education
-  * religion
-  * military, including local and global fighting groups
-  * governments, politics, diplomacy
-* *One of the heads of the beast* either is or will be in a dying condition, but it will be unexpectedly *healed*.
-* Blasphemous *mouth* (used by all *7 heads*) represents blasphemous information spread by *the beast*.  
+* *7 heads* represent all strongly connected systems forming *the beast*, allowing it to rule over all people (primarily by ruling over their "heads" - minds)
+* Blasphemous *mouth* (used by all *7 heads*) represents media.  
   Have you noticed widely spread *blasphemy*, denying all the works of God?
   (see [Genesis 1](https://biblehub.com/niv/genesis/1.htm) and Job
   [38](https://biblehub.com/nlt/job/38.htm)
@@ -67,8 +59,6 @@ According to examples from the Bible, it also includes service (free or paid) or
   * how the universe came to existence?
 
 * *Whoever has ears, let them hear* - this phrase is used several times by Jesus Christ to emphasize extremely important information; it is always said after the information itself (see Revelation [2](https://biblehub.com/lsv/revelation/2.htm):7,11,17,29 [3](https://biblehub.com/lsv/revelation/3.htm):6,13,22 ; Luke [8:8](https://biblehub.com/niv/luke/8.htm) [14:35](https://biblehub.com/niv/luke/14.htm)).
-
-*Note*: The period of *42 months* (= 3.5 years = 1260 days) is mentioned several times in the book of Revelation and it seems to be a symbol (see Revelation [11:2-3](https://biblehub.com/niv/revelation/11.htm) [12:6,14](https://biblehub.com/niv/revelation/12.htm)).
 
 ## What is the image of the beast and the mark of the beast?
 [Revelation 13:10-17](https://biblehub.com/niv/revelation/13.htm) says:
@@ -84,9 +74,17 @@ According to examples from the Bible, it also includes service (free or paid) or
 > It also forced all people, great and small, rich and poor, free and slave, to receive a mark on their right hands or on their foreheads, so that they could not buy or sell unless they had the mark, which is the name of the beast or the number of its name.
 
 ### Summary and explanations
-#### the image of the beast
-* is created by people of the earth
+#### the second beast
+* it has two horns like a lamb - it tries to imitate or to replace Jesus Christ
+* it speaks like a dragon - satan the devil, by promoting his ideas
+* it *performs great signs* and deceives people - it is called *false prophet* (see [Revelation 19:20](https://biblehub.com/niv/revelation/19.htm))
+* it exercises authority on behalf of the first beast
+* it orders people *to set up an image of the first beast* and afterwards it makes the image alive
+* it represents experts endorsed by the first beast and by the devil
+#### the image of the first beast
+* it is created by people of the earth
 * received its life and power from *the beast*
 * can speak
 * can cause death (or made inactive) of those, who don't worship it
 * represents technology
+#### the mark of the beast
