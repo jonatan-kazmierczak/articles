@@ -69,4 +69,4 @@ The prophesy written in the book of Revelation continues:
 > And the leaves of the tree are for the healing of the nations.
 
 ## Conclusion
-To learn more about the good news of the Kingdom of God, a good place to read is the [Gospel of Luke](https://biblehub.com/niv/luke/1.htm).
+Additional information you can find in the article [Kingdom of God - the only solution to the current problems of the world](./kingdom-of-god.md#kingdom-of-god---the-only-solution-to-the-current-problems-of-the-world).
