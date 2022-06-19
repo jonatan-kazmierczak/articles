@@ -51,7 +51,8 @@ However I can recommend reading the following Bible books in the given order in 
 | [Ezra](https://biblehub.com/isv/ezra) | 10 | * |
 | [Nehemiah](https://biblehub.com/isv/nehemiah) | 13 | * |
 | [Daniel](https://biblehub.com/isv/daniel) | 12 | * |
-| [Psalms](https://biblehub.com/isv/psalms) | 150 psalms | psalm 22 |
+| [Isaiah](https://biblehub.com/isv/isaiah) | 66 | * |
+| [Psalms](https://biblehub.com/isv/psalms) | 150 psalms | psalm 22, 110 |
 
 Few suggestions:
 
@@ -59,7 +60,7 @@ Few suggestions:
 - if a given fragment is boring for you, skip it and move forward
 - if you don't understand some fragment, just move forward - it happens to everyone; you can read that fragment again later to understand it better
 
-## What to do with the information you have learned?
+## What to do with the information I have learned?
 - repent of your sins
 - pray for the Kingdom of God to come
 - share the information with whomever you can
