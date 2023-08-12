@@ -30,15 +30,11 @@ The prophesy quoted above extends the older prophesy about *time of the end*, gi
 *(verse 1)*
 > At that time Michael, the great prince who protects your people, will arise. There will be a time of distress such as has not happened from the beginning of nations until then. But at that time your people — everyone whose name is found written in the book — will be delivered.  
 
-*(verses 8-10)*
+*(verses 8-12)*
 > I heard, but I did not understand. So I asked, “My lord, what will the outcome of all this be?”  
 > He replied, “Go your way, Daniel, because the words are rolled up and sealed until the time of the end.
 > Many will be purified, made spotless and refined, but the wicked will continue to be wicked. None of the wicked will understand, but those who are wise will understand.  
-
-*([verse 11](https://biblehub.com/daniel/12-11.htm) - discussed in details in a [separate article](./pandemic-2020.md#will-the-coronavirus-disease-pandemic-last-over-35-years))*
 > And from the time [that] the daily [sacrifice] is taken away, and the abomination of desolation is set up, [there shall be] 1,290 days.
-
-*(verse 12)*
 > Blessed is the one who waits for and reaches the end of the 1,335 days.  
 
 ### Happy future for righteous people
